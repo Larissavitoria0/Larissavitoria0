@@ -1,6 +1,6 @@
-### Oiee!👋
+### ᴏɪᴇᴇ!👋
 
-- 💻 Aluna do Instituto Proa (Curso Proprofissão)
+- 💻 ᴀʟᴜɴᴀ ᴅᴏ ɪɴsᴛɪᴛᴜᴛᴏ ᴘʀᴏᴀ (ᴄᴜʀsᴏ ᴘʀᴏᴘʀᴏғɪssᴀ̃ᴏ 4.0)
 
 <div align="center">
   <a href="https://github.com/Larissavitoria0">
