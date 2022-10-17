@@ -1,6 +1,4 @@
-### ᴏɪᴇᴇ!👋
-
-- 💻 ᴀʟᴜɴᴀ ᴅᴏ ɪɴsᴛɪᴛᴜᴛᴏ ᴘʀᴏᴀ (ᴄᴜʀsᴏ ᴘʀᴏᴘʀᴏғɪssᴀ̃ᴏ 4.0)
+### Seja bem vindo ao meu perfil!
 
 <div align="center">
   <a href="https://github.com/Larissavitoria0">
